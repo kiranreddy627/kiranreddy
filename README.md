@@ -1,2 +1,2 @@
-# kiranreddy
-bhavya
+# Kiranreddy
+Bhavya Reddy
